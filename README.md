@@ -1,7 +1,7 @@
 # social-media-marketing
 A collection of my work across social media handles for Cozywalks &amp; Frozen Bottle
 
-[Social Media Case Studies →](https://www.behance.net/gallery/244348745/Digital-Marketing-Portfolio-2026-Priyadarshan)
+👉 [Social Media Case Studies →](https://www.behance.net/gallery/244348745/Digital-Marketing-Portfolio-2026-Priyadarshan)
 
 ## Frozen Bottle
 
